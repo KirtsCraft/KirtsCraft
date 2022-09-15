@@ -1,3 +1,3 @@
-- To satisfy me         -
-- is to satisfy my need -
-- for bread and lacroix -
+To satisfy me         
+is to satisfy my need 
+for bread and lacroix 
